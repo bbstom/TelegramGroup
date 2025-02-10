@@ -28,7 +28,7 @@
 |TG搜索群|[https://t.me/searchto](https://t.me/searchto)|极搜100000人搜索大群，官方群|
 |神马🐎搜索|[https://t.me/smss](https://t.me/smss?start=spread_5896035263)|必备中文搜索引擎，轻松搜索频道、群组、视频、信息等...|
 |奈飞账号合租|[https://www.ihezu.cn/](https://ihezu.ink/ZyuyaC)|账号合租，账号秒发，实力售后|
-|Telegram会员|[https://t.me/tgberpro_bot](https://t.me/tgberpro_bot)|全网最低价格，24小时秒开|
+|Telegram会员|[https://t.me/tgberpro_bot](https://t.me/tgberpro_bot)|TG会员开通，全网最低价格，24小时秒开|
 
 
 
