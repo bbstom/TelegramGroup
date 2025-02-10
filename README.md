@@ -20,10 +20,10 @@
 ## 常用Telegram群组/频道
 |群组/频道名称|群组/频道链接|备注|
 |:--|:--|:--|
-|TG搜片机器人|[https://t.me/jisou](https://t.me/jisou2bot?start=a_5896035263)||
+|TG搜片机器人|[https://t.me/jisou](https://t.me/jisou2bot?start=a_5896035263)|可搜索视频资源，你懂得！！！|
 |每日免费节点|[https://t.me/autofreevpn](https://t.me/autofreevpn)|免费获取vpn节点|
 |免费社工库|[https://t.me/ingeeksgkbot](https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==)|ingeek社工库，每日免费查询社工数据|
-|数据查询|[https://t.me/shuju2020](https://t.me/shuju2020)||
+|数据查询|[https://t.me/shuju2020](https://t.me/shuju2020)|社工库查询|
 |红包接龙|[https://t.me/HBJL](https://t.me/HBJL?start=invite_5896035263)|新用户领88彩金，每日抢1-200+CNY|
 |TG搜索群|[https://t.me/searchto](https://t.me/searchto)|极搜100000人搜索大群，官方群|
 |神马🐎搜索|[https://t.me/smss](https://t.me/smss?start=spread_5896035263)|必备中文搜索引擎，轻松搜索频道、群组、视频、信息等...|
