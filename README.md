@@ -14,7 +14,8 @@
 |:--:|:--:|
 |<a href="https://t.me/jisou2bot?start=a_5896035263" rel="nofollow"><img src="https://i.imgur.com/pyDkVQJ.png" alt="TG最强搜索" data-canonical-src="https://i.imgur.com/pyDkVQJ.png" style="max-width: 100%;"><br>✅ TG最强搜索</a>|<a href="https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==" rel="nofollow"><img src="https://i.imgur.com/BuCYHhJ.png" alt="免费社工库" data-canonical-src="https://i.imgur.com/BuCYHhJ.png" style="max-width: 100%;"><br>✅ 免费社工库</a>|
 |<a href="https://t.me/av91996" rel="nofollow"><img src="https://i.imgur.com/0aH23fN.png" alt="最爱库里丝" data-canonical-src="https://i.imgur.com/0aH23fN.png" style="max-width: 100%;"><br>✅ 最爱库里丝</a>|<a href="https://t.me/tgberpro_bot" rel="nofollow"><img src="https://i.imgur.com/RA7LfM0.png" alt="Telegram会员" data-canonical-src="https://i.imgur.com/RA7LfM0.png" style="max-width: 100%;"><br>✅ TG会员</a>|
-|<a href="https://t.me/HBJL?start=invite_5896035263" rel="nofollow"><img src="https://i.imgur.com/pkK54TD.png" alt="红包接龙" data-canonical-src="https://i.imgur.com/pkK54TD.png" style="max-width: 100%;"><br>✅ 红包接龙</a>|
+|<a href="https://t.me/HBJL?start=invite_5896035263" rel="nofollow"><img src="https://i.imgur.com/pkK54TD.png" alt="红包接龙" data-canonical-src="https://i.imgur.com/pkK54TD.png" style="max-width: 100%;"><br>✅ 红包接龙</a>|<a href="https://trx.wssid.com" rel="nofollow"><img src="https://i.imgur.com/SqWoxJH.png" alt="usdt转账" data-canonical-src="https://i.imgur.com/SqWoxJH.png" style="max-width: 100%;"><br>✅ USDT转账</a>|
+
 
 
 ## 常用Telegram群组/频道
