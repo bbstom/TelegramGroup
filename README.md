@@ -1,6 +1,6 @@
 # TelegramGroup
 
-## 声明
+## ⭐️ 声明
 【电报推荐】90000+ 优质Telegram群组、Telegram频道推荐、频道和机器人，精心筛选，让您轻松玩转Telegram。
 ❗️❗️❗️本文内容严禁在中国大陆使用，一切违法后果请自行承担❗️❗️❗️
 
@@ -9,16 +9,25 @@
 ❗️❗️❗️存在️广告内容，请自行辨别真假管好自己的钱包，出问题本站概不负责❗️❗️❗️
 
 
-## 优质telegram群组/频道
+## ⭐️ 优质telegram群组/频道
 |🔥|🔥🔥|
 |:--:|:--:|
 |<a href="https://t.me/jisou2bot?start=a_5896035263" rel="nofollow"><img src="https://i.imgur.com/pyDkVQJ.png" alt="TG最强搜索" data-canonical-src="https://i.imgur.com/pyDkVQJ.png" style="max-width: 100%;"><br>✅ TG最强搜索</a>|<a href="https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==" rel="nofollow"><img src="https://i.imgur.com/BuCYHhJ.png" alt="免费社工库" data-canonical-src="https://i.imgur.com/BuCYHhJ.png" style="max-width: 100%;"><br>✅ 免费社工库</a>|
 |<a href="https://t.me/av91996" rel="nofollow"><img src="https://i.imgur.com/0aH23fN.png" alt="最爱库里丝" data-canonical-src="https://i.imgur.com/0aH23fN.png" style="max-width: 100%;"><br>✅ 最爱库里丝</a>|<a href="https://t.me/tgberpro_bot" rel="nofollow"><img src="https://i.imgur.com/RA7LfM0.png" alt="Telegram会员" data-canonical-src="https://i.imgur.com/RA7LfM0.png" style="max-width: 100%;"><br>✅ TG会员</a>|
 |<a href="https://t.me/HBJL?start=invite_5896035263" rel="nofollow"><img src="https://i.imgur.com/pkK54TD.png" alt="红包接龙" data-canonical-src="https://i.imgur.com/pkK54TD.png" style="max-width: 100%;"><br>✅ 红包接龙</a>|<a href="https://trx.wssid.com" rel="nofollow"><img src="https://i.imgur.com/MwUkujl.png" alt="usdt转账" data-canonical-src="https://i.imgur.com/MwUkujl.png" style="max-width: 100%;"><br>✅ 免费转账</a>|
+<br>
+
+## ⭐️ 可赚取收益的机器人
+
+### 給大家推荐几个可以通过互联网赚取收入的机器人，每天赚取个10-30U的没啥问题，最起码买VPS(VPN)的费用够了，后续会给大家推荐可以使用USDT付款的VPS商家
+
+|🔥|🔥🔥|
+|:--:|:--:|
+|<a href="https://t.me/jisou2bot?start=a_5896035263" rel="nofollow"><img src="https://i.imgur.com/LX334dP.png" alt="互联网网赚1" data-canonical-src="https://i.imgur.com/LX334dP.png" style="max-width: 100%;"><br>✅ 互联网网赚1</a>|<a href="https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==" rel="nofollow"><img src="https://i.imgur.com/6ZtsEOe.png" alt="互联网网赚2" data-canonical-src="https://i.imgur.com/6ZtsEOe.png" style="max-width: 100%;"><br>✅ 互联网网赚2</a>|
+|<a href="https://t.me/HBJL?start=invite_5896035263" rel="nofollow"><img src="https://i.imgur.com/YL3GblF.png" alt="互联网网赚1" data-canonical-src="https://i.imgur.com/YL3GblF.png" style="max-width: 100%;"><br>✅ 互联网网赚1</a>|<a href="https://t.me/HBJL?start=invite_5896035263" rel="nofollow"><img src="https://i.imgur.com/YL3GblF.png" alt="互联网网赚2" data-canonical-src="https://i.imgur.com/YL3GblF.png" style="max-width: 100%;"><br>✅ 互联网网赚2</a>|
 
 
-
-## 常用Telegram群组/频道
+## ⭐️ 常用Telegram群组/频道
 |群组/频道名称|群组/频道链接|备注|
 |:--|:--|:--|
 |TG搜片机器人|[https://t.me/jisou](https://t.me/jisou2bot?start=a_5896035263)|可搜索视频资源，你懂得！！！|
@@ -32,6 +41,7 @@
 |奈飞账号合租|[https://www.ihezu.cn/](https://ihezu.ink/ZyuyaC)|账号合租，账号秒发，实力售后|
 |Telegram会员|[https://t.me/tgberpro_bot](https://t.me/tgberpro_bot)|TG会员开通，全网最低价格，24小时秒开|
 |ChatGPT账号|[https://cdn.idid88.com/](https://cdn.idid88.com/)|ChatGPT账号购买|
+
 
 
 
