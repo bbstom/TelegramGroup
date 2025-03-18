@@ -33,6 +33,7 @@
 |奈飞账号合租|[https://www.ihezu.cn/](https://ihezu.ink/ZyuyaC)|账号合租，账号秒发，实力售后|
 |Telegram会员|[https://t.me/tgberpro_bot](https://t.me/tgberpro_bot)|TG会员开通，全网最低价格，24小时秒开|
 |ChatGPT账号|[https://cdn.idid88.com/](https://cdn.idid88.com/)|ChatGPT账号购买|
+|全国楼风|[https://t.me/lf](https://t.me/lfzykbot?start=u5896035263)|北京楼凤,上海楼凤,天津楼凤,全国楼凤|
 
 <br>
 <br>
