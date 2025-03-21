@@ -52,6 +52,14 @@
 <br>
 <br>
 
+## ⭐️ AI智能免费
+此处推荐的均为真正的免费版，不是那种打着免费旗号只能试用或者需要拉人头才能用的垃圾🗑️
+|智能体名称|访问链接|费用|
+|:--|:--|:--|
+|Deepseek满血版|[https://yun.oulucloud.com](https://yun.oulucloud.com/aff/ACFVYOJF)|登录注册后,免费使用,无任何限制|
+|Deepseek升腾满血版|[https://gitcode.com/ai/](https://gitcode.com/ai/)|免费使用,无任何限制|
+
+
 
 ## ⭐️ Telegram中文
 ||||
