@@ -10,11 +10,11 @@
 
 
 ## ⭐️ 优质telegram群组/频道
-|🔥|🔥🔥|
-|:--:|:--:|
-|<a href="https://t.me/jisou2bot?start=a_5896035263" rel="nofollow"><img src="https://i.imgur.com/pyDkVQJ.png" alt="TG最强搜索" data-canonical-src="https://i.imgur.com/pyDkVQJ.png" style="max-width: 100%;"><br>✅ TG最强搜索</a>|<a href="https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==" rel="nofollow"><img src="https://i.imgur.com/BuCYHhJ.png" alt="免费社工库" data-canonical-src="https://i.imgur.com/BuCYHhJ.png" style="max-width: 100%;"><br>✅ 免费社工库</a>|
-|<a href="https://t.me/av91996" rel="nofollow"><img src="https://i.imgur.com/0aH23fN.png" alt="最爱库里丝" data-canonical-src="https://i.imgur.com/0aH23fN.png" style="max-width: 100%;"><br>✅ 最爱库里丝</a>|<a href="https://t.me/tgberpro_bot" rel="nofollow"><img src="https://i.imgur.com/RA7LfM0.png" alt="Telegram会员" data-canonical-src="https://i.imgur.com/RA7LfM0.png" style="max-width: 100%;"><br>✅ TG会员</a>|
-|<a href="https://t.me/HBJL?start=invite_5896035263" rel="nofollow"><img src="https://i.imgur.com/pkK54TD.png" alt="红包接龙" data-canonical-src="https://i.imgur.com/pkK54TD.png" style="max-width: 100%;"><br>✅ 红包接龙</a>|<a href="https://trx.wssid.com" rel="nofollow"><img src="https://i.imgur.com/MwUkujl.png" alt="usdt转账" data-canonical-src="https://i.imgur.com/MwUkujl.png" style="max-width: 100%;"><br>✅ 免费转账</a>|
+|🔥|🔥🔥|🔥🔥🔥|
+|:--:|:--:|:--:|
+|<a href="https://t.me/jisou2bot?start=a_5896035263" rel="nofollow"><img src="https://i.imgur.com/pyDkVQJ.png" alt="TG最强搜索" data-canonical-src="https://i.imgur.com/pyDkVQJ.png" style="max-width: 100%;"><br>✅ TG最强搜索</a>|<a href="https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==" rel="nofollow"><img src="https://i.imgur.com/BuCYHhJ.png" alt="免费社工库" data-canonical-src="https://i.imgur.com/BuCYHhJ.png" style="max-width: 100%;"><br>✅ 免费社工库</a>|<a href="https://t.me/p5trx" rel="nofollow"><img src="https://imgur.com/cLC8V66.png" alt="能量闪租" data-canonical-src="https://imgur.com/cLC8V66.png" style="max-width: 100%;"><br>✅ 能量闪租</a>|
+|<a href="https://t.me/av91996" rel="nofollow"><img src="https://i.imgur.com/0aH23fN.png" alt="最爱库里丝" data-canonical-src="https://i.imgur.com/0aH23fN.png" style="max-width: 100%;"><br>✅ 最爱库里丝</a>|<a href="https://t.me/tgberpro_bot" rel="nofollow"><img src="https://i.imgur.com/RA7LfM0.png" alt="Telegram会员" data-canonical-src="https://i.imgur.com/RA7LfM0.png" style="max-width: 100%;"><br>✅ TG会员</a>|<a href="https://t.me/lfzykbot?start=u5896035263" rel="nofollow"><img src="https://imgur.com/fL3IWs3.png" alt="全国楼凤" data-canonical-src="https://imgur.com/fL3IWs3.png" style="max-width: 100%;"><br>✅ 全国楼凤</a>|
+|<a href="https://t.me/HBJL?start=invite_5896035263" rel="nofollow"><img src="https://i.imgur.com/pkK54TD.png" alt="红包接龙" data-canonical-src="https://i.imgur.com/pkK54TD.png" style="max-width: 100%;"><br>✅ 红包接龙</a>|<a href="https://trx.wssid.com" rel="nofollow"><img src="https://i.imgur.com/MwUkujl.png" alt="usdt转账" data-canonical-src="https://i.imgur.com/MwUkujl.png" style="max-width: 100%;"><br>✅ 免费转账</a>|<a href="https://t.me/GVTRX" rel="nofollow"><img src="https://imgur.com/TrlYIk8.png" alt="广告位" data-canonical-src="https://imgur.com/TrlYIk8.png" style="max-width: 100%;"><br>✅ 黄金光告</a>|
 
 <br>
 <br>
@@ -35,6 +35,8 @@
 |ChatGPT账号|[https://cdn.idid88.com/](https://cdn.idid88.com/)|ChatGPT账号购买|
 |全国楼风|[https://t.me/lf](https://t.me/lfzykbot?start=u5896035263)|北京楼凤,上海楼凤,天津楼凤,全国楼凤|
 |USDT-RMB兑换|[https://t.me/eupa](https://t.me/eupay?start=40xDYzpNCGMWM15udY)|在线的USDT交易平台,在线购买USDT,在线出售USDT|
+|能量闪租|[https://t.me/p5trx](https://t.me/p5trx)|能量闪租,1trx租能量可usdt转账一次|
+|usdt钱庄|[https://t.me/ssbot](https://t.me/ssssbot?start=invite_5896035263)|usdt买大买小，买单买双，链上可查童叟无欺|
 
 
 <br>
