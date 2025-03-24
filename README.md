@@ -34,8 +34,8 @@
 |Telegram会员|[https://t.me/tgberpro_bot](https://t.me/tgberpro_bot)|TG会员开通，全网最低价格，24小时秒开|
 |ChatGPT账号|[https://cdn.idid88.com/](https://cdn.idid88.com/)|ChatGPT账号购买|
 |全国楼风|[https://t.me/lf](https://t.me/lfzykbot?start=u5896035263)|北京楼凤,上海楼凤,天津楼凤,全国楼凤|
-|USDT兑换RMB|[https://t.me/eupa](https://t.me/eupay?start=40xDYzpNCGMWM15udY)|在线的USDT交易平台,USDT提现,买卖USDT,新用户送5USDT奖金|
-|RMB兑换USDT|[https://t.me/eupa](https://t.me/eupay?start=40xDYzpNCGMWM15udY)|在线的USDT交易平台,USDT提现,买卖USDT,新用户送5USDT奖金|
+|USDT-RMB兑换|[https://t.me/eupa](https://t.me/eupay?start=40xDYzpNCGMWM15udY)|在线的USDT交易平台,在线购买USDT,在线出售USDT|
+
 
 <br>
 <br>
