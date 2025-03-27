@@ -37,6 +37,9 @@
 |USDT-RMB兑换|[https://t.me/eupa](https://t.me/eupay?start=40xDYzpNCGMWM15udY)|在线的USDT交易平台,在线购买USDT,在线出售USDT|
 |能量闪租|[https://t.me/p5trx](https://t.me/p5trx)|能量闪租,1trx租能量可usdt转账一次|
 |usdt钱庄|[https://t.me/ssbot](https://t.me/ssssbot?start=invite_5896035263)|usdt买大买小，买单买双，链上可查童叟无欺|
+|能量租赁机器人|[https://t.me/xxtrx](https://t.me/xxtrxbot?start=NjA1NzgwNTEyOEA=)|免费能量机器人源码,可自行部署机器人,自行运营能量租赁业务|
+
+
 
 
 <br>
