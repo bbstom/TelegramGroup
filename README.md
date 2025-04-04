@@ -38,6 +38,7 @@
 |能量闪租|[https://t.me/p5trx](https://t.me/p5trx)|能量闪租,1trx租能量可usdt转账一次|
 |usdt钱庄|[https://t.me/ssbot](https://t.me/ssssbot?start=invite_5896035263)|usdt买大买小，买单买双，链上可查童叟无欺|
 |能量租赁机器人|[https://t.me/xxtrx](https://t.me/xxtrxbot?start=NjA1NzgwNTEyOEA=)|免费能量机器人源码,可自行部署机器人,自行运营能量租赁业务|
+|找小姐|[https://t.me/xxtr](https://xlbbbs.com/plugin.php?id=keke_group&iuid=154355)|北京小姐,上海小姐,天津小姐,全国小姐|
 
 
 
