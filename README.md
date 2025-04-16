@@ -12,7 +12,7 @@
 ## ⭐️ 优质telegram群组/频道
 |🔥|🔥🔥|🔥🔥🔥|
 |:--:|:--:|:--:|
-|<a href="https://t.me/jisou2bot?start=a_5896035263" rel="nofollow"><img src="https://i.imgur.com/pyDkVQJ.png" alt="TG最强搜索" data-canonical-src="https://i.imgur.com/pyDkVQJ.png" style="max-width: 100%;"><br>✅ TG最强搜索</a>|<a href="https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==" rel="nofollow"><img src="https://i.imgur.com/BuCYHhJ.png" alt="免费社工库" data-canonical-src="https://i.imgur.com/BuCYHhJ.png" style="max-width: 100%;"><br>✅ 免费社工库</a>|<a href="https://t.me/p5trx" rel="nofollow"><img src="https://imgur.com/cLC8V66.png" alt="能量闪租" data-canonical-src="https://imgur.com/cLC8V66.png" style="max-width: 100%;"><br>✅ 能量闪租</a>|
+|<a href="https://t.me/jisou?start=a_5896035263" rel="nofollow"><img src="https://i.imgur.com/pyDkVQJ.png" alt="TG最强搜索" data-canonical-src="https://i.imgur.com/pyDkVQJ.png" style="max-width: 100%;"><br>✅ TG最强搜索</a>|<a href="https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==" rel="nofollow"><img src="https://i.imgur.com/BuCYHhJ.png" alt="免费社工库" data-canonical-src="https://i.imgur.com/BuCYHhJ.png" style="max-width: 100%;"><br>✅ 免费社工库</a>|<a href="https://t.me/p5trx" rel="nofollow"><img src="https://imgur.com/cLC8V66.png" alt="能量闪租" data-canonical-src="https://imgur.com/cLC8V66.png" style="max-width: 100%;"><br>✅ 能量闪租</a>|
 |<a href="https://t.me/av91996" rel="nofollow"><img src="https://i.imgur.com/0aH23fN.png" alt="最爱库里丝" data-canonical-src="https://i.imgur.com/0aH23fN.png" style="max-width: 100%;"><br>✅ 最爱库里丝</a>|<a href="https://t.me/tgberpro_bot" rel="nofollow"><img src="https://i.imgur.com/RA7LfM0.png" alt="Telegram会员" data-canonical-src="https://i.imgur.com/RA7LfM0.png" style="max-width: 100%;"><br>✅ TG会员</a>|<a href="https://t.me/lfzykbot?start=u5896035263" rel="nofollow"><img src="https://imgur.com/fL3IWs3.png" alt="全国楼凤" data-canonical-src="https://imgur.com/fL3IWs3.png" style="max-width: 100%;"><br>✅ 全国楼凤</a>|
 |<a href="https://t.me/HBJL?start=invite_5896035263" rel="nofollow"><img src="https://i.imgur.com/pkK54TD.png" alt="红包接龙" data-canonical-src="https://i.imgur.com/pkK54TD.png" style="max-width: 100%;"><br>✅ 红包接龙</a>|<a href="https://trx.wssid.com" rel="nofollow"><img src="https://i.imgur.com/MwUkujl.png" alt="usdt转账" data-canonical-src="https://i.imgur.com/MwUkujl.png" style="max-width: 100%;"><br>✅ 免费转账</a>|<a href="https://t.me/GVTRX" rel="nofollow"><img src="https://imgur.com/TrlYIk8.png" alt="广告位" data-canonical-src="https://imgur.com/TrlYIk8.png" style="max-width: 100%;"><br>✅ 黄金光告</a>|
 
@@ -22,7 +22,7 @@
 ## ⭐️ 常用Telegram群组/频道
 |群组/频道名称|群组/频道链接|备注|
 |:--|:--|:--|
-|TG搜片机器人|[https://t.me/jisou](https://t.me/jisou2bot?start=a_5896035263)|可搜索视频资源，你懂得！！！|
+|TG搜片机器人|[https://t.me/jisou](https://t.me/jisou?start=a_5896035263)|可搜索视频资源，你懂得！！！|
 |每日免费节点|[https://t.me/autofreevpn](https://t.me/autofreevpn)|免费获取vpn节点|
 |免费社工库|[https://t.me/ingeeksgkbot](https://t.me/ingeeksgkbot?start=NTg5NjAzNTI2Mw==)|ingeek社工库，每日免费查询社工数据|
 |海外APPLE ID|[https://cdn.idid88.com/](https://cdn.idid88.com/)|全网最便宜，可下载小火箭，apple id账号|
