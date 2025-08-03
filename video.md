@@ -9,4 +9,4 @@
 ## ⭐️ 优质telegram群组/频道
 |🔥|🔥🔥|🔥🔥🔥|
 |:--:|:--:|:--:|
-|<a href="https://t.me/jisou?start=a_5896035263" rel="nofollow"><img src="https://img.xchina.io/photos/638a390f2787d/0029.jpg" alt="TG最强搜索" data-canonical-src="https://img.xchina.io/photos/638a390f2787d/0029.jpg" style="max-width: 100%;"><br>✅ TG最强搜索</a>|
+|<a href="https://t.me/jisou?start=a_5896035263" rel="nofollow"><img src="https://i0.wp.com/jj.looives.com/t9/a1JWenc4S3l1Z1hRRWdlcDVJTytBWnhHblhkWVozVXBadGg0YmxvVStkbDZ4RHRRMElJWDNXYmhkODBnZnRkY0NOWWhGbjFvbXlLUVd2d0ZQc0xxYVE9PQ-d.jpg" alt="TG最强搜索" data-canonical-src="https://img.xchina.io/photos/638a390f2787d/0029.jpg" style="max-width: 100%;"><br>✅ TG最强搜索</a>|
