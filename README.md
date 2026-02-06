@@ -78,4 +78,8 @@
 |telegram中文色情频道2|[电梯直达](https://t.me/i_SEX_AV)||
 |telegeam中文会员在线开通|[电梯直达](@tgberpro_bot)||
 
+## USDT相关
+能量租赁/trx兑换/usdt代付：https://co.ksdn.cc
+
+
 
