@@ -22,7 +22,7 @@
 ## ⭐️ 常用Telegram群组/频道
 |群组/频道名称|群组/频道链接|备注|
 |:--|:--|:--|
-|能量租赁|[https://t.me/kknns_bot](https://t.me/kknns_bot)|1TRX租赁能量，免费USDT转账|
+|能量租赁|[https://t.me/kknns_bot](https://t.me/TRXLP_bot)|1TRX租赁能量，免费USDT转账|
 |TG搜片机器人|[https://t.me/jisou](https://t.me/jisou2?start=a_5896035263)|可搜索视频资源，你懂得！！！|
 |每日免费节点|[https://t.me/autofreevpn](https://t.me/autofreevpn)|免费获取vpn节点|
 |免费社工库|[https://t.me/ingeeksgkbot](https://www.13140.sbs)|ingeek社工库，每日免费查询社工数据|
@@ -79,7 +79,7 @@
 |telegeam中文会员在线开通|[电梯直达](@tgberpro_bot)||
 
 ## USDT相关
-能量租赁/trx兑换/usdt代付：https://vpnkk.com
+能量租赁/trx兑换/usdt代付：https://kkpays.org
 
 
 
